@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with some basic cybersecurity projects 
 - 📫 You reach me by princesolanki3007@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: i am a first year B.tech student
+- ⚡ Fun fact: i am a Second year B.tech student
 
 <!---
 Princesolanki01/Princesolanki01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
